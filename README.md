@@ -4,8 +4,11 @@
 ### Baramay may help with:
 
 Healing/Balancing for the Mind, Body & Spirit
+<br/>
 Third Eye Activation
+<br/>
 Communication with Higher Self & The Collective Consciousness
+<br/>
 
 [Baramay1](https://www.baramay1.com/)
 <br/>
